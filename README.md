@@ -1,0 +1,1 @@
+Cybersecurity analyst with experience in Network Security, Web Application Security and Soc Analysis, focusing on cybersecurity best practices and a background in mechanical engineering and a MBA Degree in Smart Industry. Passionate about safeguarding digital infrastructure and committed to advancing in cybersecurity.
